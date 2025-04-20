@@ -41,7 +41,7 @@
 ### 🌐 Portofolio & Media Sosial
 
 #### 📁 Portofolio
-- 🔗 [Kunjungi Portofolio Saya](https://your-portfolio-link.com)
+- 🔗 [Kunjungi Portofolio Saya](https://www.linkedin.com/in/febry-ambar-panuntun-61a88461/)
 
 #### 🤝 Media Sosial
 <p>
